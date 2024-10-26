@@ -1,4 +1,4 @@
-# FOR SATHYABAMA STUDENTS CONTACT https://wa.me/<6305752393>
+# FOR SATHYABAMA STUDENTS CONTACT https://wa.me/6305752393
 
 # Online-Video-Game-Sales-Prediction
 
